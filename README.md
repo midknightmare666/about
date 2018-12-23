@@ -1,2 +1,2 @@
 # midknightmare
-https://midknightmare666.github.io/midknightmare/#
+https://midknightmare666.github.io/about/#
